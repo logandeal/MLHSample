@@ -1,1 +1,1 @@
-# Sample for MLH Fellowship
+# Sample for MLH Fellowship Application
